@@ -1,17 +1,18 @@
 # Playlist
 
-## For Studying: 👇😌
-- [LoFi Beats](https://www.youtube.com/watch?v=5qap5aO4i9A)
+## Tracks For vibing: Added  👇😌
+   Freddie Dredd Life is 
+- [Life is (unreleased)](https://www.youtube.com/watch?v=xIFSy_3Nuo8)
 
-  Lofi Hip Hop Radio - beats to relax/ study to | Various Artists | 29,661 watching now
-- [Beyond the Sky (Acoustic Guitar Cover)](https://www.youtube.com/watch?v=0_Af8SX2bWM)
+  Ramirez - on purpose | 288,001 views 
+- [On purpose ](https://www.youtube.com/watch?v=P5ebgxdf0tQ)
 
-  Xenoblade Chronicles OST | Xenoblade | 36,007 views
-- [Piano Quintet, Scherzo](https://youtu.be/Ub3UAK_KeNI)
+  Junior H. | 137,126,817 views
+- [Mente positiva](https://www.youtube.com/watch?v=q8cKZfOyFQE)
 
-  Robert Schumann | 36,393 views
-- [Unwavering Emotions](https://www.youtube.com/watch?v=o-mKUzqHcEc)
 
+
+Other traacks 
   Pokémon Black & White Remix | Mewmore | 408,936 views
 - [Wind Scene (cover)](https://www.youtube.com/watch?v=pUFELL5hHbg)
 
